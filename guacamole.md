@@ -1,4 +1,4 @@
-I AM GOD
+Idk I AM GOD
 # guacamole
 ## ingredients
  - lime (1 kg)
