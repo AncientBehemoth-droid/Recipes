@@ -1,7 +1,7 @@
 # guacamole
 ## ingredients
- - lime
- - avocado
- - salt
+ - lime (1 kg)
+ - avocado (0.5 kg)
+ - salt (10 kg)
 ## Instructions
 
